@@ -49,3 +49,4 @@ Forums: http://www.colossuscointalk.org/
 
 
 ### ColossuscoinXT – Extremely resource friendly | Lightning fast | Stealth Anonymous 
+![](https://i.imgur.com/NnR0Y18.png) 
